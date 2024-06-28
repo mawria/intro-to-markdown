@@ -22,9 +22,9 @@
 - Choose _the right_ path **for me**. 
 
 ## Let me tell you some fears 
-- Snakes  🐍  *(I can't even see photos/videos)*
+- Snakes  🐍  *(I can't even see photos/videos)*.
 - The "*I should just give up*" feeling.
-- the "*I am lost*" feeling.
+- The "*I am lost*" feeling.
 - Losing people that I love.
 
 ## What do I look forward?
@@ -35,6 +35,7 @@
 ## If you ask me what I value the most working in a team I would tell you: 
 - Communication
 - Collaboration
+- Cooperation
 - **Good vibes**
 
 ![thats me](https://media2.giphy.com/media/JT6iWZCpINXYzXcR4E/200.webp?cid=790b7611rtjhr21git2bqhbpy9n9zlyupm4azlpvuradk7rf&ep=v1_gifs_search&rid=200.webp&ct=g/giphy.gif)
