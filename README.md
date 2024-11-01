@@ -39,6 +39,3 @@
 - **Good vibes**
 
 ![thats me](https://media2.giphy.com/media/JT6iWZCpINXYzXcR4E/200.webp?cid=790b7611rtjhr21git2bqhbpy9n9zlyupm4azlpvuradk7rf&ep=v1_gifs_search&rid=200.webp&ct=g/giphy.gif)
-
-*Just in case you want to know, my birthday is 26th August* 😉
-***
